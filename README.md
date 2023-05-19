@@ -1,0 +1,2 @@
+# latihangitsaya
+bebas
